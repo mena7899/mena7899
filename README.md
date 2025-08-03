@@ -1,5 +1,5 @@
 - 👋 Hi, I’m mena ibrahim
-- 👀 I’m interested in Data analysis
+- 👀 I’m interested in Software quality and Data quality/analysis
 - 🌱 I’m enhancing my skills 
 - 📫 How to reach me menaibrahimshehata@gmail.com or https://www.linkedin.com/in/mena-ibrahim-221273235/
 
